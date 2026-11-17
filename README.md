@@ -1,0 +1,1 @@
+# GraphicSimulations26Kryvsha
